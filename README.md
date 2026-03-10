@@ -17,5 +17,6 @@ a few things about me 🕯️
 - always creating, rarely explaining
 - probably writing something right now that will never see daylight
 
-find the chaos elsewhere
+find the chaos elsewhere....
+
 still building. always creating. rarely sleeping.
