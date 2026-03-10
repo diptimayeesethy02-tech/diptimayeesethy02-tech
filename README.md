@@ -1,8 +1,9 @@
-Hi, I'm Dipti. 🖤
-"Somee people write to be understood.
+Hi, I'm Dipti....🖤
+
+"Some people write to be understood.
 I write because silence gets too loud."
 
-I'm a poet, a writer, a sketcher and occasionally someone who stares at a blank page
+I'm a poet, writer, sketcher, and occasionally someone who stares at a blank page
 until it blinks first.
 
 what lives here 🌑
